@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ScroobiusDip
 - 👀 I represent Moonboots Labs
 - 🌱 I’m currently seeking crypto start ups ...
-- 💞️ Offering a suite of crypto releyed tools.
+- 💞️ Offering a suite of crypto related tools.
 - 📫 kelly@moonbootscapital.io
 - 😄 No
 - ⚡ happy to pick up the oil paints and whip up a landscape...
